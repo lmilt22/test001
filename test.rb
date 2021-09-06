@@ -1,1 +1,2 @@
- kjo eshte nje shembly 
+
+rtyfjjgfjfgjgg
